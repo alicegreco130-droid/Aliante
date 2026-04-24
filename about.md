@@ -1,4 +1,4 @@
-# CHIMERA Name
+# Aliante
 
 Aliante è una chimera che nasce e fiorisce in Primavera. Il suo corpo è l’emblema della natura incontaminata.Capace di potersi adagiare su fiori profumati e dolci ma anche di nuotare in acque tempestose e torbide. La sua estetica riflette la sua interiorità, dolce come i fiori di Maggio e persuasiva e torbida come il mare. Ama vivere vicino alle coste e praterie, ricercando un contatto con l’uomo,quando necessario. Ammalia ed addolcisce i sogni di chi l’ascolta cantare, proprio come gli usignoli risvegliano la notte. Le sue ali di fata non servono  solo per volare, ma quando vibrano rilasciano una polvere magica capace di far sbocciare fiori istantaneamente anche sui terreni più aridi. Il suo sguardo è capace di placare ogni tempesta in atto. 
 La legenda narra che Aliante sia costantemente circondata da fiori perché la natura stessa si innamora di lei solo al suo passaggio. Ovunque lei nuoti o voli a pelo d’acqua, i petali la seguono come un mantello vivente. Si dice che se un umano riuscisse a trovare un fiore di Aliante, quel fiore non morirà mai e donerà sogni sereni a chi lo custodisce.
